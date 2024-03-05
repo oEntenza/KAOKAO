@@ -6,4 +6,6 @@
 - Realize um pull
 - Convide um colaborador
 
-> "Um pequeno passo para o homem mas um gigantesco passo pra a humanidade"
+> "Um pequeno passo para o homem mas um gigantesco salto pra a humanidade"
+
+> "Para o mundo não sou ninguém, mas para você eu sou o mundo"
